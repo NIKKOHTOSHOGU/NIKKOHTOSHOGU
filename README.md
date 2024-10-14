@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Python!
 - 💞️ I’m looking to collaborate on project of science.
 - 📫 How to reach me : Scratch acount @NIKKOHTOSHOGU
-- 😄 Pronouns: smile
+- 😄 Pronouns: He or him
 - ⚡ Fun fact: programming!
 - 🌏 I speak Japanese only.
 - 
